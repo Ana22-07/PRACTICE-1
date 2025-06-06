@@ -1,4 +1,4 @@
-#Vampirism in novels
+# I know what you are. Say it out loud. A VAMPIRE!!
 
 This is the skin of a killer Bella.
 
